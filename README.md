@@ -12,6 +12,7 @@ DNI
 - Anti-furries
 - P3d0s
 - Z00s
+- RPs unless friend
 BYI
 - I'm open to vent to but I don't know how to respond most of the time, I say what I can, but most of the time my way of comforting is cuddling/kissing/nuzzling.
 - I LOVE talking to people in fandoms I'm in when I'm not on dniuf/dniuid.
@@ -22,6 +23,8 @@ BYI
 - Yes, I love Hazbin Hotel and Helluva Boss, but I DO NOT SUPPORT VIV.
 - I do use pet names like sugar often, PLEASE let me know if you don't want me to, I will stop.
 - I'm very forgetful so if I forget your name, I will ask for your name and pronouns so I can make a friend note. ^^
+- Don't direct sexual jokes towards me unless you're a close friend.
+- I will most likely move to a different area if I feel left out, theres someone I don't like or wanna be around, or am not in the mood to interact.
 OTHER INFO
 - I use Gee/Gerard, but you can call me Party Poison aswell !!
 - I'm bi, and questioning trans.
