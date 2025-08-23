@@ -14,7 +14,7 @@ DNI
 - Z00s
 - RPs unless friend
 - Incest shippers (Any type being mentioned around me makes me extremely uncomfy and its just gross.)
-- BYI
+BYI
 - I'm open to vent to but I don't know how to respond most of the time, I say what I can, but most of the time my way of comforting is cuddling/kissing/nuzzling.
 - I LOVE talking to people in fandoms I'm in when I'm not on dniuf/dniuid.
 - If I'm on dniuf and I crown you, you CAN respond !!
@@ -26,7 +26,7 @@ DNI
 - I'm very forgetful so if I forget your name, I will ask for your name and pronouns so I can make a friend note. ^^
 - Don't direct sexual jokes towards me unless you're a close friend.If you arent someone close to me and you do this it makes me extremely uncomfortable.
 - I will most likely move to a different area if I feel left out, theres someone I don't like or wanna be around, or am not in the mood to interact.
-- OTHER INFO
+OTHER INFO
 - I use Gee/Gerard, but you can call me Party Poison aswell !!
 - I'm bi, and questioning trans.
 - I am NOT trans as far as I know of, but I do prefer he/him.
@@ -34,7 +34,7 @@ DNI
 - I LOVE MY CHEMICAL ROMANCE !!
 - I <3 sick puppies. (a band)
 - I LOVE FNAF
-- FANDOMS
+FANDOMS
 - THE UMBRELLA ACADEMY
 - FNAF
 - MCR/OTHER BANDOMS
