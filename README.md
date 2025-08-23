@@ -13,7 +13,7 @@ DNI
 - P3d0s
 - Z00s
 - RPs unless friend
-- Incest shippers (gerardcest, waycest, and other ships... ew...)
+- Incest shippers (gerardcest, waycest, and other incestships (not just bandom) PLEASE dni.)
 BYI
 - I'm open to vent to but I don't know how to respond most of the time, I say what I can, but most of the time my way of comforting is cuddling/kissing/nuzzling.
 - I LOVE talking to people in fandoms I'm in when I'm not on dniuf/dniuid.
