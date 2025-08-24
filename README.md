@@ -12,6 +12,7 @@ DNI
 - Anti-furries
 - P3d0s
 - Z00s
+- M4ps
 - RPs unless friend
 - Incest shippers (Any type being mentioned around me makes me extremely uncomfy and its just gross.)
 
@@ -34,7 +35,7 @@ OTHER INFO
 - I use Gee/Gerard, but you can call me Party Poison aswell !!
 - I'm bi, and questioning trans.
 - I am NOT trans as far as I know of, but I do prefer he/him.
-- I'm a furry and otherlink/fictionlink.
+- Party Poison fictionlink ^^
 - I LOVE MY CHEMICAL ROMANCE !!
 - I <3 sick puppies. (a band)
 - I LOVE FNAF
