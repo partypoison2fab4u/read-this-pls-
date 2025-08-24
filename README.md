@@ -3,7 +3,7 @@ DNI
 - Proshippers
 - DW fandom (fandom dnis dont apply to friends)
 - CRK fandom 
-- Under 12/over 18
+- Under 12/over 18 (unless we're already friends and you turn 18)
 - Jimmy Urine supporters
 - Vivziepop/Vivienne Madrano supporters
 - KPDH fandom
