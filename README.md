@@ -1,6 +1,6 @@
 # read-this-pls-
 DNI
-- Proshippers
+- Proshippers (unless we were already friends before this was made, meaning im comfy with you, you can int. But if i dont know you and you're a proshipper, dni.)
 - DW fandom (fandom dnis dont apply to friends)
 - CRK fandom 
 - Under 12/over 18 (unless we're already friends and you turn 18)
