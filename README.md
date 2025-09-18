@@ -37,7 +37,7 @@ OTHER INFO
 - Party Poison fictionlink ^^
 - I LOVE MY CHEMICAL ROMANCE !!
 - I <3 sick puppies. (a band)
-- I LOVE FNAF
+- i love the mock-ups sm 
 
 FANDOMS
 
@@ -54,7 +54,5 @@ FANDOMS
 - REGRETEVATOR
 - HELLUVA BOSS
 - HAZBIN HOTEL
-- MLP
-- FAR-FETCHED
 - SANDERS SIDES
 That's all friends !!
